@@ -1,6 +1,6 @@
 <pre>
 
-<img src="" width="350" height="240">
+<img src="https://s7.gifyu.com/images/yt5scom-Animation-blue-backgroun-1.gif" width="350" height="240">
 
 🌪️ CyPacket 🌪️  ///  🗲 PacketCharge™ 🗲
 
